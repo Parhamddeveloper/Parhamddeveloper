@@ -1,4 +1,4 @@
-👋 Hello, I’m Parham Daneshnejad
+👋 Hello, I’m Parham Danesh
 <br>
 <br>
 My skills:
